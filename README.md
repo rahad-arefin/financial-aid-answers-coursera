@@ -16,5 +16,5 @@ As I have answered before, having no permanent source of income, I really don't 
 ## Connect with me by <br>
 ### <a href="https://www.quora.com/profile/Rahad-Arefin">Quora</a><br>
 ### <a href="https://twitter.com/rahadarefin">Twitter</a><br>
-### <a href="https://www.linkedin.com/in/rahad-arefin">Linkedin</a><br>
+### <a href="https://www.linkedin.com/pulse/how-answer-coursera-financial-aid-questions-rahad-arefin">Linkedin</a><br>
 ### <a href="https://www.youtube.com/TechThrillBD">Youtube</a><br>

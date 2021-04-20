@@ -14,7 +14,7 @@ As I have answered before, having no permanent source of income, I really don't 
 
 <br><br><br>
 ## Connect with me by <br>
-### <a href="https://https://www.quora.com/profile/Rahad-Arefin">Quora</a><br>
-### <a href="https://https://twitter.com/rahadarefin">Twitter</a><br>
+### <a href="https://www.quora.com/profile/Rahad-Arefin">Quora</a><br>
+### <a href="https://twitter.com/rahadarefin">Twitter</a><br>
 ### <a href="https://www.linkedin.com/in/rahad-arefin">Linkedin</a><br>
 ### <a href="https://www.youtube.com/TechThrillBD">Youtube</a><br>

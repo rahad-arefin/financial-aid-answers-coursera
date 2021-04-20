@@ -1,4 +1,4 @@
-# financial-aid-answes-coursera
+# financial-aid-answers-coursera
 Where you will find all the answers regarding Coursera Financial Aid Application. Please don't put the exact phrase that i've written here. Try to add relevant information regarding your desier course. Happy Coursing 😀
 <br><br>
 ## Why are you applying for Financial Aid?

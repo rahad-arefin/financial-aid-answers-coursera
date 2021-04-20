@@ -13,8 +13,8 @@ I want to take this course as I want to learn UI/UX professionally. I want to co
 As I have answered before, having no permanent source of income, I really don't see any way of advancing and paying for my course. It would be a great help for me to get a good job and help my family if I'm able to get this course.
 
 <br><br><br>
-Connect with me by
-<a href="https://https://www.quora.com/profile/Rahad-Arefin">Quora</a><br>
-<a href="https://https://twitter.com/rahadarefin">Twitter</a><br>
-<a href="https://www.linkedin.com/in/rahad-arefin">Linkedin</a><br>
-<a href="https://www.youtube.com/TechThrillBD">Youtube</a><br>
+## Connect with me by <br>
+### <a href="https://https://www.quora.com/profile/Rahad-Arefin">Quora</a><br>
+### <a href="https://https://twitter.com/rahadarefin">Twitter</a><br>
+### <a href="https://www.linkedin.com/in/rahad-arefin">Linkedin</a><br>
+### <a href="https://www.youtube.com/TechThrillBD">Youtube</a><br>
